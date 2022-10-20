@@ -1,1 +1,3 @@
-Extract 2 kali untuk mendapatkan folder project data-crud-uts.
+Chayani Suci Romasage
+20050974067
+PTI 2020 A
